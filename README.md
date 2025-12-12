@@ -1,2 +1,2 @@
-# -SebastianFraKontraktika
-Personal Repository
+# Personal repo, woooow
+
